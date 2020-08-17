@@ -3,8 +3,11 @@ layout:     post
 title:      How to Get Dragon city Gems and Golds
 date:       2020-06-10 10:21:29
 summary:    You 're a gamer? So sure, you'll be more than happy to hear about another great title, Dragon City Mod APK.
-categories: Game Guide
+categories: Mobile-Game-Guide
+permalink: how-to-get-dragon-city-gems-and-golds
 ---
+<img src="images/Dragon City How To Get Free Gems, Foods, Gold.jpg" title="Dragon City How To Get Free Gems, Foods, Gold">
+
 You 're a gamer? So sure, you'll be more than happy to hear about another great title, Dragon City Mod APK. Okay, it is a great launched game focused on social network.
 
 It was first released in 2013, the same year it was made available for download on iOS devices. It is a product of Social Point developers targeting mid-core gamers, enabling them to develop their individual dragon and build a Dragon City in a floating island.
