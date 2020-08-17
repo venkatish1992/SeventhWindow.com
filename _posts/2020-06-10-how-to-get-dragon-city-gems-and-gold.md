@@ -1,6 +1,6 @@
 ---
 layout:     post
-title:      How to Get Dragon city Gems and Gols
+title:      How to Get Dragon city Gems and Golds
 date:       2020-06-10 10:21:29
 summary:    You 're a gamer? So sure, you'll be more than happy to hear about another great title, Dragon City Mod APK.
 categories: Game Guide
